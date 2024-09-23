@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JourneyToLunar
 - 👀 I’m interested in walking, hiking, biking, rowing, swimming, photography, videography, blogging, and more...
 - 🌱 I’m currently learning video editing in Final Cut Pro and Motion
-- 📫 How to reach me: https://journeytolunar.com/about/#connect
+- 📫 How to reach me: https://journeytolunar.com/contact/
 - ⚡ Fun fact: Distance to the moon is 384400 kilometres
